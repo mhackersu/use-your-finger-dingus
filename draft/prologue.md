@@ -1,0 +1,13 @@
+In high-stakes fields like aviation and surgery, focus isn’t just important — it’s a matter of life and death. Pilots are trained to follow the “Sterile Flight Deck” rule, which means when they’re in control of an aircraft, there are no distractions. Every other task, no matter how urgent, gets pushed aside because the pilot’s sole responsibility is to fly that plane. Period. The same goes for surgeons: once the scalpel is in hand, they need absolute focus on the operation — no phone calls, no idle chatter, just precision and concentration.
+
+And yet, in the world of business, we seem to think it’s normal to juggle 18 things at once. We hold meetings while answering emails, we hop between tasks as if our brains are high-performance computers that never need rest, and we wear the “busy” badge like it’s a trophy. But here’s the thing: all this distraction doesn’t make us productive. It makes us tired, burned out, and less effective at the work that actually matters.
+
+So, what if we treated work the same way pilots treat their flight decks and surgeons treat their operating rooms? What if we implemented the same principle of focus protection that’s been a part of life-saving industries for decades?
+
+This book is about applying those exact principles to the workplace. Imagine a business where meetings are focused, emails are managed intelligently, and distractions are kept at bay. Where leaders understand the importance of giving people the mental space to do their best work — and where employees aren’t constantly pulled in a thousand directions.
+
+In this book, we’ll talk about how you can create that environment. We’ll walk through practical, actionable steps to establish your very own "sterile field" at work — a distraction-free zone where people are empowered to focus, make decisions, and do their best work. You’ll learn how to reduce unnecessary noise, how to protect time for deep work, and how to cultivate an environment of psychological safety that encourages focus and creativity.
+
+Because let’s face it: in today’s world, the real challenge isn’t how many emails we can answer in an hour — it’s how many distractions we can eliminate so that we can actually get to the important stuff.
+
+The goal? A work environment where people feel safe, focused, and able to thrive. And if you happen to get a little sore thumb from too much typing, well, maybe it’s time to use your finger, dingus.
